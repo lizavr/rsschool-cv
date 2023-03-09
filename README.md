@@ -1,1 +1,1 @@
-# rsschool-cv
+https://lizavr.github.io/rsschool-cv/
